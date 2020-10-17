@@ -1,0 +1,2 @@
+# noo
+Penambangan sukses
